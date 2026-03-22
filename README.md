@@ -1,1 +1,3 @@
 # JavaScript
+all javasript coe for revision.....................................................................
+gambling is betterthan sde lol
